@@ -1,6 +1,6 @@
 ### meu nome é Erik👋
 eu gosto de minecraft
-garotas mais velhas
+youtuber
 scp
 craaprastas
 terrores
