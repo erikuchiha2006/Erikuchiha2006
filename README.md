@@ -3,7 +3,7 @@ eu gosto de minecraft
 youtuber
 scp
 craaprastas
-terrores
+terror
 tick tock
 you tube
 face
